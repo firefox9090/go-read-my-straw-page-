@@ -1,2 +1,3 @@
 # hi
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQT4ZRJXGKgaec0QfcklMZ_KKqPE4th7cskfQ&amp;s
+![image](https://github.com/user-attachments/assets/bfbc71b1-af41-4c6e-aeef-64a0b1b2939d)
+me when you dont read my strawpage
